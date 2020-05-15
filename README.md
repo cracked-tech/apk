@@ -1,2 +1,2 @@
 # apk
-gestyy.com/e0T5DY
+http://gestyy.com/e0T5DY
